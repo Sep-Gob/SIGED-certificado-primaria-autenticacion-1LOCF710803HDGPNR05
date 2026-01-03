@@ -1,0 +1,2 @@
+# SIGED-certificado-primaria-autenticacion-1LOCF710803HDGPNR05
+LOCF710803HDGPNR05
